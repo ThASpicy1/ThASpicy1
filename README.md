@@ -15,3 +15,4 @@ You can click the Preview link to take a look at your changes.
 > well fortunate and assessable to all his criteria== help in anyway possible)<
 >Excluding bugs or other devices from 'hacking or stealing identity or dcuments as in credit card.*$money.assets.and or  everything that has to do with identity@!
 <{www.okta/mycompany.com_remove from my "Iphone device")
+=> www.cashapp*$ needs to to be only modified and controlled by "Yunio Rolando" which is the administrator to his and all other accounts/devices
