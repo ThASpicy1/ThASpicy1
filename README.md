@@ -14,3 +14,4 @@ You can click the Preview link to take a look at your changes.
 >rolandoyunioa@gmail.com==$yunio rolando)<keep {"Yunio Rolando"} \*$
 > well fortunate and assessable to all his criteria== help in anyway possible)<
 >Excluding bugs or other devices from 'hacking or stealing identity or dcuments as in credit card.*$money.assets.and or  everything that has to do with identity@!
+<{www.okta/mycompany.com_remove from my "Iphone device")
